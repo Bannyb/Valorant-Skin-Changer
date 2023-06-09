@@ -10,7 +10,7 @@
 | ------------- | ------------- |
 
 <p align="center">
-<img src="https://camo.githubusercontent.com/f6a3e723714132dd01b758ac3b423657db077206d9fa3a9e153e59f7598da251/68747470733a2f2f692e6779617a6f2e636f6d2f33633435646231333631613661323764366437613436386638336234323937662e6a7067"
+<img src="https://gcdnb.pbrd.co/images/mlq2pWK8X3sW.png?o=1"
 </p>
 
 ## 💜 Review: 💜
